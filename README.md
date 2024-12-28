@@ -17,7 +17,7 @@
 
 - 📫 How to reach me **nishitsurti312@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1bkaEi-gFu33aG6ArDldJ1AJoTZAQrYsg/view?usp=sharing](https://drive.google.com/file/d/1bkaEi-gFu33aG6ArDldJ1AJoTZAQrYsg/view?usp=sharing)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1bkaEi-gFu33aG6ArDldJ1AJoTZAQrYsg/view?usp=sharing](https://tinyurl.com/NishitSurti)
 
 - ⚡ Fun fact **A passionate traveler who loves exploring new places and expressing creativity through drawing and graphic design.**
 

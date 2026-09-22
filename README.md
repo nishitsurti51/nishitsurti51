@@ -7,7 +7,7 @@
 
 - 🔭 I’m currently working on **Wazuh, Microsoft Sentinel**
 
-- 🌱 I’m currently learning **TryHackme on 7% and Microsoft Security Operations Analyst**
+- 🌱 I’m currently learning **TryHackme on 3% and Microsoft Security Operations Analyst**
 
 - 👯 I’m looking to collaborate on **Microsoft Sentinel and Splunk**
 
